@@ -1,0 +1,1 @@
+Desene Göre Metot Oluşturma
